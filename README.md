@@ -1,0 +1,1 @@
+# projC-Users-esmaa-OneDrive-Belgeler-Masa-st-proje-dizini
